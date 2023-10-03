@@ -5,7 +5,6 @@ Embark on a transformative journey with the Push Pull Legs (PPL) split, a covete
 This article is your map to the PPL territory, shedding light on its core methodology, unveiling its bountiful benefits, and guiding you through the trails of the StrengthLog Push Pull Legs Intermediate and Advanced training realms. Your expedition into the realms of strength and aesthetics begins here!
 
 # Table of Contents
-
 - [Introduction](#introduction)
 - [What Is the Push Pull Legs Split?](#what-is-the-push-pull-legs-split)
 - [Who Should Do the Push Pull Legs Split?](#who-should-do-the-push-pull-legs-split)
@@ -73,6 +72,32 @@ Unlock the full potential of the PPL split with these success tips:
 
 ## Frequently Asked Questions (FAQs)
 
+1. [Can I do cardio on a PPL split?](#q-can-i-do-cardio-on-a-ppl-split)
+2. [How long should I rest between sets?](#q-how-long-should-i-rest-between-sets)
+3. [Can beginners do a PPL split?](#q-can-beginners-do-a-ppl-split)
+4. [How do I know when to increase the weight?](#q-how-do-i-know-when-to-increase-the-weight)
+5. [What if I miss a workout day?](#q-what-if-i-miss-a-workout-day)
+6. [Should I change the exercises in my PPL routine?](#q-should-i-change-the-exercises-in-my-ppl-routine)
+7. [Can I follow a PPL split while cutting?](#q-can-i-follow-a-ppl-split-while-cutting)
+8. [How many exercises should I perform each day?](#q-how-many-exercises-should-i-perform-each-day)
+9. [Is a warm-up necessary?](#q-is-a-warm-up-necessary)
+10. [Can I do a PPL split at home?](#q-can-i-do-a-ppl-split-at-home)
+11. [How much rest should I get between workout days?](#q-how-much-rest-should-i-get-between-workout-days)
+12. [Can I combine PPL with other training methods?](#q-can-i-combine-ppl-with-other-training-methods)
+13. [What can I do if I hit a plateau?](#q-what-can-i-do-if-i-hit-a-plateau)
+14. [Is it necessary to take supplements?](#q-is-it-necessary-to-take-supplements)
+15. [How can I track my progress?](#q-how-can-i-track-my-progress)
+16. [What should my diet look like on a PPL split?](#q-what-should-my-diet-look-like-on-a-ppl-split)
+17. [Is it beneficial to work with a personal trainer?](#q-is-it-beneficial-to-work-with-a-personal-trainer)
+18. [How long should each workout session last?](#q-how-long-should-each-workout-session-last)
+19. [Should I do the same exercises every week?](#q-should-i-do-the-same-exercises-every-week)
+20. [Can I do PPL split without equipment?](#q-can-i-do-ppl-split-without-equipment)
+21. [Is it okay to switch the order of the days?](#q-is-it-okay-to-switch-the-order-of-the-days)
+22. [How should I hydrate during a PPL split?](#q-how-should-i-hydrate-during-a-ppl-split)
+
+<details>
+<summary>Click to Expand FAQs</summary>
+  
 ### Q: Can I do cardio on a PPL split?
 **A:** Yes, integrating cardio can be beneficial. It can be done on rest days or after strength training sessions.
 
@@ -138,6 +163,8 @@ Unlock the full potential of the PPL split with these success tips:
 
 ### Q: How should I hydrate during a PPL split?
 **A:** Stay hydrated by drinking plenty of water throughout the day, especially before and after your workout sessions.
+
+</details>
 
 ## Conclusion
 
