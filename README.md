@@ -6,9 +6,6 @@ Welcome to **Workout Inspiration** - Elevating Every Step of Your Fitness Journe
 
 Embrace a community-driven space, fervently crafted with diverse workout programs and holistic fitness guides for every individual. Ignite, empower, and sustain your fitness voyage with us! Let’s forge a haven where we uplift, inspire, and champion each other towards a wholesome, dynamic lifestyle!
 
-![Banner Image](/Images/ppl_header.png)
-
-
 ## 🌟 What’s Inside 
 
 ### 🏋️‍♂️ [Workouts](/Workouts)
