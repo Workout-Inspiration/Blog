@@ -1,5 +1,7 @@
 # Push Pull Legs (PPL) Training Split: Ultimate Guide with Routines & Schedule 🏋️
 
+![Banner Image](/Images/ppl_header.png)
+
 ## Introduction
 Embark on a transformative journey with the Push Pull Legs (PPL) split, a coveted treasure among workout programs for individuals hungry for muscle and strength gains. Athletes, bodybuilders, and seasoned lifters alike, herald the PPL routine as a powerhouse for nurturing muscle mass. But the charm of PPL doesn’t end at muscle growth—it flexes to fit your schedule, becoming a steadfast ally in your pursuit of diverse fitness goals.
 This article is your map to the PPL territory, shedding light on its core methodology, unveiling its bountiful benefits, and guiding you through the trails of the StrengthLog Push Pull Legs Intermediate and Advanced training realms. Your expedition into the realms of strength and aesthetics begins here!
