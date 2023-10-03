@@ -79,3 +79,20 @@ Special thanks to:
 For collaborations, inquiries, or feedback, reach us at [email@domain.com](mailto:email@domain.com).
 
 **Fuel your journey with Workout Inspiration! 💫💪**
+
+---
+
+**Stay Connected:**
+
+- **Lyfta App:** [Download Now](https://lyfta.app)
+- **App Store:** [Download on the App Store](https://apps.apple.com/sa/app/lyfta-gym-workout-tracker/id6443740936)
+- **Play Store:** [Get it on Google Play](https://play.google.com/store/apps/details?id=com.lyfta&hl=en&gl=US)
+
+**Follow us on Social Media for Workout Inspiration:**
+
+- **TikTok:** [Workout Inspiration on TikTok](https://www.tiktok.com/@workout_inspiration_)
+- **Instagram:** [Workout Inspiration on Instagram](https://www.instagram.com/workout_inspiration._/)
+- **Facebook:** [Workout Inspiration on Facebook](https://www.facebook.com/profile.php?id=100091128267281)
+- **YouTube:** [Workout Inspiration on YouTube](https://www.youtube.com/channel/UCmB-mbYWCGNZTlH-WtLAJKg)
+
+**Join our community and take the next step in your fitness journey with Workout Inspiration!** 🚀
